@@ -4,7 +4,6 @@
 
 
 
-![vert![resim_2023-05-10_180633093-removebg-preview](https://github.com/erenalparslan/LineerLayoutVideos/assets/100201401/5e2b6276-b1a6-4ef9-8ab6-c14775fe375b)
 ical-removebg-preview](https://github.com/erenalparslan/LineerLayoutVideos/assets/100201401/40a41b3d-1a99-4005-a663-3e65feb565ee)
-
+![resim_2023-05-10_180633093-removebg-preview](https://github.com/erenalparslan/LineerLayoutVideos/assets/100201401/ad14e0fa-0f95-4df1-8a67-9301bb59012e)
 
